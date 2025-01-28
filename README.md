@@ -1,3 +1,4 @@
 ᛝ  　  　     　 　  　  [main](https://github.com/retrobive) , [alt](https://github.com/elster-unit) , [rentry](https://rentry.co/elster-unit)
-
-![laios-touden-laios](https://github.com/user-attachments/assets/334a7184-3fe2-44ab-97bf-b616053484c4)
+ 　 
+ 　 
+![laios-touden-dungeon-meshi](https://github.com/user-attachments/assets/dcb348dc-4715-4f30-8e05-e2d1bdf72126)
