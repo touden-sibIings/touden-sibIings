@@ -1,4 +1,4 @@
-ᛝ  　  　     　 　  　  [main](https://github.com/retrobive) , [alt](https://github.com/elster-unit) , [rentry](https://rentry.co/elster-unit)
+ᛝ  　  　     　 　  　  [main](https://github.com/retrobive) , [alt](https://github.com/elster-unit) , [rentry](https://rentry.co/azuresz)
 
 𝜗  　  　     Please check my main 4 info  　  　     　 　  　    　  　   about me!
 
